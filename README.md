@@ -94,8 +94,3 @@
  🎉 Thanks for Visiting! 😊🚀  
 Keep Innovating, Keep Automating! ⚡  
 
----
-
-This README will make your GitHub profile stand out, showing both your finance expertise and tech skills.  
-
-💡 Now, copy-paste this into your GitHub README generator and upload it! 🚀🔥
